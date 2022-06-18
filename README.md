@@ -4,4 +4,4 @@
 - ❤️ I’m currently creating **Zircon Finance**
 - 💬 Ask me about **DeFi**
 - 📫 How to reach me: **[t.me/vittoridavid](https://t.me/vittoridavid)**
-- ⚡ Fun fact: **Ate pasta everyday for six months**
+- ⚡ Fun fact: **For half a year, I ate pasta as breakfast.**
