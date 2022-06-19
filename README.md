@@ -4,4 +4,3 @@
 - ❤️ I’m currently creating **Zircon Finance**
 - 💬 Ask me about **DeFi**
 - 📫 How to reach me: **[t.me/vittoridavid](https://t.me/vittoridavid)**
-- ⚡ Fun fact: **I ate pasta as breakfast for 2020's first half of the year**
